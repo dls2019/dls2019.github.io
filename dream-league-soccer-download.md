@@ -19,18 +19,6 @@ Name: Dream League Soccer Mod or No Mod (Unlimited Coins-Player) (No Root)<br>
 Version: v6.00 (Latest 2018-2019)<br>
 Size: 60,8 MB<br>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
-<!-- esnekbaglanti -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-7942429830883405"
-     data-ad-slot="6718384393"
-     data-ad-format="link"
-     data-full-width-responsive="true"></ins>
-<script>
-(adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
-<script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <!-- Baglanti20090 -->
 <ins class="adsbygoogle"
      style="display:inline-block;width:200px;height:90px"
@@ -39,7 +27,6 @@ Size: 60,8 MB<br>
 <script>
 (adsbygoogle = window.adsbygoogle || []).push({});
 </script>
-
 <a rel="nofollow" href=" https://cloud.mail.ru/public/9wt4/XNHJUR4Bg" target="_blank">(Unlimited Money+Player) Dream League Soccer 2019 Mod Apk Download – 60MB</a><br>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <!-- 336 -->

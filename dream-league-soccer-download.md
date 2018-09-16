@@ -18,7 +18,18 @@ permalink: /dream-league-soccer-download
 Name: Dream League Soccer Mod or No Mod (Unlimited Coins-Player) (No Root)<br>
 Version: v6.00 (Latest 2018-2019)<br>
 Size: 60,8 MB<br>
- 
+<script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
+<!-- esnekbaglanti -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7942429830883405"
+     data-ad-slot="6718384393"
+     data-ad-format="link"
+     data-full-width-responsive="true"></ins>
+<script>
+(adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <!-- Baglanti20090 -->
 <ins class="adsbygoogle"

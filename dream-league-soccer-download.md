@@ -27,7 +27,7 @@ Size: 60,8 MB<br>
 <script>
 (adsbygoogle = window.adsbygoogle || []).push({});
 </script>
-<a rel="nofollow" href=" https://cloud.mail.ru/public/9wt4/XNHJUR4Bg" target="_blank">(Unlimited Money+Player) Dream League Soccer 2019 Mod Apk Download – 60MB</a><br>
+1- <a rel="nofollow" href=" https://cloud.mail.ru/public/9wt4/XNHJUR4Bg" target="_blank">(Unlimited Money+Player) Dream League Soccer 2019 Mod Apk Download – 60MB</a><br>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <!-- 336 -->
 <ins class="adsbygoogle"
@@ -38,8 +38,8 @@ Size: 60,8 MB<br>
 (adsbygoogle = window.adsbygoogle || []).push({});
 </script>
 <br>
-<a rel="nofollow" href="https://cloud.mail.ru/public/7SVb/tVETrbLam" target="_blank">(Just Unlimited Money-No MOD) Dream League Soccer Apk Download - 60MB</a><br>
-<a rel="nofollow" href="https://cloud.mail.ru/public/GiAz/RY9GYv6QB" target="_blank">Dream League Soccer 2018 v5.064 SD DATA Download – 275MB</a><br>
+2- <a rel="nofollow" href="https://cloud.mail.ru/public/7SVb/tVETrbLam" target="_blank">(Just Unlimited Money-No MOD) Dream League Soccer Apk Download - 60MB</a><br>
+3- <a rel="nofollow" href="https://cloud.mail.ru/public/GiAz/RY9GYv6QB" target="_blank">Dream League Soccer 2018 v5.064 SD DATA Download – 275MB</a><br>
 
 <h2>DLS 2019 How To Install-Download</h2>
 •	Download the APK file and the cache.<br>

@@ -41,7 +41,6 @@ Size: 60,8 MB<br>
 </script>
 
 <a rel="nofollow" href=" https://cloud.mail.ru/public/9wt4/XNHJUR4Bg" target="_blank">(Unlimited Money+Player) Dream League Soccer 2019 Mod Apk Download – 60MB</a><br>
-<a rel="nofollow" href="https://drive.google.com/uc?id=1ECCBqiaJBUSfv7VddbmPpuiJEJE3-41A" target="_blank">Alternative Link (60MB)</a><br>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <!-- 336 -->
 <ins class="adsbygoogle"
@@ -56,11 +55,11 @@ Size: 60,8 MB<br>
 <a rel="nofollow" href="https://cloud.mail.ru/public/GiAz/RY9GYv6QB" target="_blank">Dream League Soccer 2018 v5.064 SD DATA Download – 275MB</a><br>
 
 <h2>DLS 2019 How To Install-Download</h2>
-•	Download the APK file and the cache.
-•	Allow in the settings of installing applications from unknown sources (done once).
-•	Run the installation using the file manager.
-•	Copy the cache folder from the downloaded archive to the SD / Android / obb / directory on your phone using the file manager. The result is SD / Android / obb / cache_path / obb file.
-•	Launch the application.
+•	Download the APK file and the cache.<br>
+•	Allow in the settings of installing applications from unknown sources (done once).<br><br>
+•	Run the installation using the file manager.<br>
+•	Copy the cache folder from the downloaded archive to the SD / Android / obb / directory on your phone using the file manager. The result is SD / Android / obb / cache_path / obb file.<br>
+•	Launch the application.<br>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <!-- esnekbaglanti -->
 <ins class="adsbygoogle"
